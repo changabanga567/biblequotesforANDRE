@@ -1,1 +1,1 @@
-Made this beacuse a ddue named andre sends me daily quran quotes for some reason and im fighting back now with an automated bible quote of the day
+Made this because a dude named Andre sends me daily Quran quotes for some reason and I'm fighting back now with an automated bible quote of the day
